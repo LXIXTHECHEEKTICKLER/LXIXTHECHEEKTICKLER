@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @LXIXTHECHEEKTICKLER
+- 👀 I’m interested in drawing
+- 🌱 I’m currently learning animation
+- 📫 How to reach me NO GRAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAGH
+- 😄 Pronouns: sleep/deprived (fuck you)
+- ⚡ Fun fact: i have a dog :D
