@@ -4,3 +4,4 @@
 - 📫 How to reach me NO GRAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAGH
 - 😄 Pronouns: sleep/deprived (fuck you)
 - ⚡ Fun fact: i have a dog :D
+- ANOTHER fun... thing, I got my OG account back so I'm never touching this one again.
